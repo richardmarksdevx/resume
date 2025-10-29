@@ -1,6 +1,6 @@
 # Richard Marks : Game Programmer
 
-[Download Resume PDF](./GameProgrammer_Richard_Marks_Resume.pdf)
+[Download Resume PDF](./GameProgrammer_Richard_Marks_2025.pdf)
 
 ### Profile
 
